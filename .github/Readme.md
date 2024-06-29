@@ -123,7 +123,7 @@
 
 ✧ <b>[𝐍𝐎𝐁𝐈𝐓𝐀_𝐗𝐃](https://github.com/nobitaaaxd) 
 
-✧ <b>[𝐌𝐈𝐑𝐙𝐀](https://github.com/MirzaElite) 
+✧ <b>[𝐌𝐈𝐑𝐙𝐀](https://github.com/MirzyaOP) 
 
 ✧ <b>[⌯ Kᴜɴᴀʟ࿐ 🕊](https://github.com/VARC9210)
 
