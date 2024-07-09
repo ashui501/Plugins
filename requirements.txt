@@ -44,3 +44,4 @@ openai
 flask
 flask_restful
 reportlab
+gunicorn
